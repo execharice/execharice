@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Show your latest dev.to posts automatically on your GitHub profile readme](https://dev.to/gautamkrishnar/show-your-latest-dev-to-posts-automatically-in-your-github-profile-readme-3nk8)
-- [God Mode in browsers: document.designMode = "on"](https://dev.to/gautamkrishnar/god-mode-in-browsers-document-designmode-on-2pmo)
-- [Skipping the Chrome "Your connection is not private" warning](https://dev.to/gautamkrishnar/quickbits-1-skipping-the-chrome-your-connection-is-not-private-warning-4kp1)
-- [Microsoft Student Partners – Geek is the new rockstar](https://dev.to/gautamkrishnar/microsoft-student-partners--geek-is-the-new-rockstar)
-- [Microsoft Student Partners (Ambassadors) – Geek is the new rockstar](https://www.gautamkrishnar.com/microsoft-student-partners/)
+- [Will Ex Forget Me During No Contact](https://exbackluv.wordpress.com/2021/01/04/will-ex-forget-me-during-no-contact/)
+- [How Effective Is The No Contact Rule](https://exbackluv.wordpress.com/2021/01/02/how-effective-is-the-no-contact-rule/)
+- [4 Signs The No Contact Rule Is Working](https://exbackluv.wordpress.com/2020/12/14/4-signs-the-no-contact-rule-is-working/)
+- [How Long Does It Take To Get Over A Breakup](https://exbackluv.wordpress.com/2020/12/09/how-long-does-it-take-to-get-over-a-breakup/)
+- [How To Get Your Ex Back When He Has Moved On](https://www.youtube.com/watch?v=q3K1YMoqVQo)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
