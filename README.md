@@ -38,7 +38,7 @@
 - [How can you make your ex boyfriend want you back](https://noeldemon.tumblr.com/post/638555827945521152/how-can-you-make-your-ex-boyfriend-want-you-back)
 <!-- BLOG-POST-LIST:END -->
 
-➡️ [more blog posts...](https://exbackexpertise.weebly.com/)
+➡️ [more blog posts...](about.me/exbackluv)
 
 ---
 
