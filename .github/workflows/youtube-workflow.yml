@@ -12,6 +12,5 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
         comment_tag_name: "YOUTUBE"
-        max_post_count: "10"
           feed_list: "https://www.youtube.com/feeds/videos.xml?channel_id=UCngbUNrf9pk7lJcawuDsJPw"
 © 2021 GitHub, Inc.
