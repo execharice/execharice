@@ -1,11 +1,11 @@
 ### Hi there, I'm Charice
 ## I'm a hopeless romantic who loves to dissect love and relationships when I'm not coding.
 
-🔭 I love to learn, make mistakes, and pull all-nighters solving problems.
-🌱 I love rom coms with a pint of Ben and Jerrys
-👯 I’m looking to collaborate with other content creators
-🥅 2021 Goals: Contribute more to Open Source projects
-⚡ Fun fact: I love photoshop creations
+- 🔭 I love to learn, make mistakes, and pull all-nighters solving problems.
+- 🌱 I love rom coms with a pint of Ben and Jerrys
+- 👯 I’m looking to collaborate with other content creators
+- 🥅 2021 Goals: Contribute more to Open Source projects
+- ⚡ Fun fact: I love photoshop creations
 
 
 ### Connect with me:
@@ -13,8 +13,6 @@
 [<img align="left" alt="codeSTACKr.com" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
 [<img align="left" alt="codeSTACKr | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="codeSTACKr | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />][twitter]
-[<img align="left" alt="codeSTACKr | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
-[<img align="left" alt="codeSTACKr | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
 
 <br />
 
@@ -35,7 +33,7 @@
 
 <!-- BLOG-POST-LIST:END -->
 
-?? [more blog posts...](https://about.me/harrisonburg)
+?? [more blog posts...](https://exbackexpertise.weebly.com/)
 
 ---
 
@@ -43,4 +41,3 @@
 [website]: https://exbackluv.wordpress.com/
 [twitter]: https://twitter.com/ExBackExpertise
 [youtube]: https://www.youtube.com/channel/UCngbUNrf9pk7lJcawuDsJPw
-
