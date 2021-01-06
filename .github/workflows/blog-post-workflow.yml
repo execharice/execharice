@@ -1,4 +1,4 @@
- name: Latest blog post workflow
+name: Latest blog post workflow
 on:
   schedule: # Run workflow automatically
     - cron: '0 * * * *' # Runs every hour, on the hour
@@ -12,4 +12,5 @@ jobs:
       - uses: gautamkrishnar/blog-post-workflow@master
         with:
           max_post_count: "10"
-          feed_list: "https://exbackluv.wordpress.com/feed/,https://www.youtube.com/feeds/videos.xml?channel_id=UCngbUNrf9pk7lJcawuDsJPw"
+          feed_list: "https://hollywood-portraits.tumblr.com/rss,https://www.youtube.com/feeds/videos.xml?channel_id=UCVIDxCl1mGeZcMqNXZnT5Ag"
+
