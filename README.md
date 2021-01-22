@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [how long does it take for an ex boyfriend to want you back](https://www.youtube.com/watch?v=GJzWo5oVtPs)
 - [How Can You Make Your Ex Boyfriend Want You Back](https://www.youtube.com/watch?v=adKopdw3ZFQ)
 - [Will Ex Forget Me During No Contact](https://exbackluv.wordpress.com/2021/01/04/will-ex-forget-me-during-no-contact/)
 - [How Effective Is The No Contact Rule](https://exbackluv.wordpress.com/2021/01/02/how-effective-is-the-no-contact-rule/)
 - [4 Signs The No Contact Rule Is Working](https://exbackluv.wordpress.com/2020/12/14/4-signs-the-no-contact-rule-is-working/)
-- [How Long Does It Take To Get Over A Breakup](https://exbackluv.wordpress.com/2020/12/09/how-long-does-it-take-to-get-over-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
