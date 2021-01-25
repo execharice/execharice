@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Do You Know If Your Ex Misses You?](https://www.youtube.com/watch?v=qCDKTRBFlxc)
+- [Should I Contact My Ex After A Breakup?](https://www.youtube.com/watch?v=qNw89-wa52s)
+- [When Should You Contact Your Ex?](https://www.youtube.com/watch?v=TcObrTOTRfM)
+- [Should I Text My ex? I Miss Him](https://www.youtube.com/watch?v=XFOiWxAbKkM)
 - [How To Make Your Ex Miss You](https://www.youtube.com/watch?v=S64eBqJ5u54)
-- [How Can I Get My Ex Boyfriend Back Fast](https://www.youtube.com/watch?v=ZuQ9iJx4uTo)
-- [How To Get Your Ex Boyfriend Back](https://www.youtube.com/watch?v=lvS7Db1naAc)
-- [How Long Does It Take For An Ex To Miss You With No Contact?](https://exbackluv.wordpress.com/2021/01/25/how-long-does-it-take-for-an-ex-to-miss-you-with-no-contact/)
-- [How Long Does It Take For An Ex Boyfriend To Want You Back](https://www.youtube.com/watch?v=GJzWo5oVtPs)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
