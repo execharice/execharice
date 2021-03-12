@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Why Is The No Contact Rule So Effective?](https://exbackluv.wordpress.com/2021/03/12/why-is-the-no-contact-rule-so-effective/)
 - [Why Is The No Contact Rule So Effective](https://www.youtube.com/watch?v=avQ8ECIorNc)
 - [Should I Text My ex? I Miss Him](https://exbackluv.wordpress.com/2021/02/12/should-i-text-my-ex-i-miss-him/)
 - [How Do You Know If Your Ex Misses You?](https://exbackluv.wordpress.com/2021/02/10/how-do-you-know-if-your-ex-misses-you/)
 - [How To Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/02/08/how-to-make-your-ex-miss-you/)
-- [How Can I Get My Ex Boyfriend Back Fast?](https://exbackluv.wordpress.com/2021/02/05/how-can-i-get-my-ex-boyfriend-back-fast/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
