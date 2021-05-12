@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How long should I wait to talk to my ex after a break up?](https://exbackluv.wordpress.com/2021/05/12/how-long-should-i-wait-to-talk-to-my-ex-after-a-break-up-2/)
 - [How Long Should You Wait To Talk To Your Ex After A Breakup](https://exbackluv.wordpress.com/2021/05/10/how-long-should-you-wait-to-talk-to-your-ex-after-a-breakup/)
 - [How Long Should You Wait To Talk To Your Ex After A Breakup](https://www.youtube.com/watch?v=QgDkyG1vFTY)
 - [What Is The No Contact Rule?](https://exbackluv.wordpress.com/2021/03/17/what-is-the-no-contact-rule/)
 - [What Is The No Contact Rule?](https://www.youtube.com/watch?v=fqWdshGKgkI)
-- [Why Is The No Contact Rule So Effective?](https://exbackluv.wordpress.com/2021/03/12/why-is-the-no-contact-rule-so-effective/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
