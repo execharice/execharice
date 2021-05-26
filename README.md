@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Long Does It Take For An Ex To Miss You With No Contact](https://www.youtube.com/watch?v=rL2Zb2qRh4o)
 - [How Long Should I Wait To Talk To My Ex After Breaking Up](https://exbackluv.wordpress.com/2021/05/22/how-long-should-i-wait-to-talk-to-my-ex-after-breaking-up/)
 - [Should I Talk To My Ex After Breaking Up?](https://exbackluv.wordpress.com/2021/05/15/should-i-talk-to-my-ex-after-breaking-up/)
 - [How Long Should I Wait To Talk To My Ex After A Break Up?](https://exbackluv.wordpress.com/2021/05/13/how-long-should-i-wait-to-talk-to-my-ex-after-a-break-up/)
 - [How long should I wait to talk to my ex after a break up?](https://exbackluv.wordpress.com/2021/05/12/how-long-should-i-wait-to-talk-to-my-ex-after-a-break-up-2/)
-- [How Long Should You Wait To Talk To Your Ex After A Breakup](https://exbackluv.wordpress.com/2021/05/10/how-long-should-you-wait-to-talk-to-your-ex-after-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
