@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DailyMotion – Does The No Contact Rule Work If You Were Dumped](https://exbackluv.wordpress.com/2021/06/04/dailymotion-does-the-no-contact-rule-work-if-you-were-dumped/)
+- [YouTube – Does The No Contact Rule Work If You Got Dumped](https://exbackluv.wordpress.com/2021/06/04/does-the-no-contact-rule-work-if-you-got-dumped/)
+- [Does The No Contact Rule Work If You Were Dumped](https://exbackluv.wordpress.com/2021/06/04/does-the-no-contact-rule-work-if-you-were-dumped/)
 - [Does The No Contact Rule Work If You Were Dumped](https://www.youtube.com/watch?v=GqeyWmx6xnY)
 - [How Long Does It Take Your Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/05/30/how-long-does-it-take-your-ex-to-miss-you-with-no-contact/)
-- [DailyMotion – How Long Does It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/05/27/dailymotion-how-long-does-it-take-for-an-ex-to-miss-you-with-no-contact/)
-- [YouTube – How Long Does It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/05/27/youtube-how-long-does-it-take-for-an-ex-to-miss-you-with-no-contact/)
-- [How Long Does It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/05/27/how-long-does-it-take-for-an-ex-to-miss-you-with-no-contact-2/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
