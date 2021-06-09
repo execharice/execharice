@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does No Contact Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/09/does-no-contact-work-if-your-ex-is-seeing-someone-else/)
 - [Does No Contact Work If Your Ex Is Seeing Someone Else](https://www.youtube.com/watch?v=0l0EDVy28Sc)
 - [How Do You Know If He Misses You During No Contact?](https://exbackluv.wordpress.com/2021/06/07/how-do-you-know-if-he-misses-you-during-no-contact/)
 - [Is My Ex Thinking About Me During No Contact](https://exbackluv.wordpress.com/2021/06/07/is-my-ex-thinking-about-me-during-no-contact/)
 - [Is My Ex Thinking About Me During No Contact](https://www.youtube.com/watch?v=xiK_e28ZwIg)
-- [Does The No Contact Rule Work If You Were Dumped By Ex](https://exbackluv.wordpress.com/2021/06/05/does-the-no-contact-rule-work-if-you-were-dumped-by-ex/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
