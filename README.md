@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DailyMotion  – The Male Mind During No Contact](https://exbackluv.wordpress.com/2021/06/16/dailymotion-the-male-mind-during-no-contact/)
+- [YouTube – The Male Mind During No Contact](https://exbackluv.wordpress.com/2021/06/16/youtube-the-male-mind-during-no-contact/)
 - [The Male Mind During No Contact](https://www.youtube.com/watch?v=ztzN_XndxNg)
 - [Will No Contact Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/12/will-no-contact-work-if-your-ex-is-seeing-someone-else/)
 - [DailyMotion – Does No Contact Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/09/dailymotion-does-no-contact-work-if-your-ex-is-seeing-someone-else/)
-- [Does The No Contact Rule Work If He’s Already Seeing Someone Else?](https://exbackluv.wordpress.com/2021/06/09/does-the-no-contact-rule-work-if-hes-already-seeing-someone-else/)
-- [YouTube – Does No Contact Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/09/youtube-does-no-contact-work-if-your-ex-is-seeing-someone-else/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
