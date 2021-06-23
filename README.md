@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Power Of Silence After Break Up](https://www.youtube.com/watch?v=B0nEfgjJEnM)
 - [What Does No Contact Do To A Guy?](https://exbackluv.wordpress.com/2021/06/17/what-does-no-contact-do-to-a-guy/)
 - [The Male Mind During No Contact](https://exbackluv.wordpress.com/2021/06/16/the-male-mind-during-no-contact/)
 - [DailyMotion  – The Male Mind During No Contact](https://exbackluv.wordpress.com/2021/06/16/dailymotion-the-male-mind-during-no-contact/)
 - [YouTube – The Male Mind During No Contact](https://exbackluv.wordpress.com/2021/06/16/youtube-the-male-mind-during-no-contact/)
-- [The Male Mind During No Contact](https://www.youtube.com/watch?v=ztzN_XndxNg)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
