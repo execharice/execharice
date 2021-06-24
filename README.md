@@ -36,7 +36,7 @@
 - [The Power Of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/the-power-of-silence-after-break-up/)
 - [DailyMotion – The Power of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/dailymotion-the-power-of-silence-after-break-up/)
 - [YouTube – The Power of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/youtube-the-power-of-silence-after-break-up/)
-- [Power Of Silence After Break Up](https://www.youtube.com/watch?v=B0nEfgjJEnM)
+- [What Does No Contact Do To A Guy?](https://exbackluv.wordpress.com/2021/06/17/what-does-no-contact-do-to-a-guy/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
