@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does No Contact Work If My Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/25/does-no-contact-work-if-my-ex-is-seeing-someone-else/)
 - [Does The No Contact Rule Work If You Got Dumped](https://exbackluv.wordpress.com/2021/06/25/does-the-no-contact-rule-work-if-you-got-dumped-2/)
 - [Is silence after a breakup the best revenge?](https://exbackluv.wordpress.com/2021/06/24/is-silence-after-a-breakup-the-best-revenge/)
 - [The Power Of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/the-power-of-silence-after-break-up/)
 - [DailyMotion – The Power of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/dailymotion-the-power-of-silence-after-break-up/)
-- [YouTube – The Power of Silence After Break Up](https://exbackluv.wordpress.com/2021/06/23/youtube-the-power-of-silence-after-break-up/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
