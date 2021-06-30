@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DailyMotion – How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/dailymotion-how-long-should-no-contact-last/)
+- [How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/how-long-should-no-contact-last/)
+- [YouTube – How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/youtube-how-long-should-no-contact-last/)
+- [How Long Should No Contact Last](https://www.youtube.com/watch?v=KO00OxD_LDw)
 - [How Long Will It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/06/28/how-long-will-it-take-for-an-ex-to-miss-you-with-no-contact/)
-- [The Male Mind During No Contact Rule](https://exbackluv.wordpress.com/2021/06/25/the-male-mind-during-no-contact-rule/)
-- [Does No Contact Work If My Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/06/25/does-no-contact-work-if-my-ex-is-seeing-someone-else/)
-- [Does The No Contact Rule Work If You Got Dumped](https://exbackluv.wordpress.com/2021/06/25/does-the-no-contact-rule-work-if-you-got-dumped-2/)
-- [Is silence after a breakup the best revenge?](https://exbackluv.wordpress.com/2021/06/24/is-silence-after-a-breakup-the-best-revenge/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
