@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Get Him Back](https://www.youtube.com/watch?v=64Hz-hdA1cs)
 - [DailyMotion – How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/dailymotion-how-long-should-no-contact-last/)
 - [How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/how-long-should-no-contact-last/)
 - [YouTube – How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/youtube-how-long-should-no-contact-last/)
 - [How Long Should No Contact Last](https://www.youtube.com/watch?v=KO00OxD_LDw)
-- [How Long Will It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/06/28/how-long-will-it-take-for-an-ex-to-miss-you-with-no-contact/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
