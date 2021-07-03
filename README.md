@@ -36,7 +36,7 @@
 - [DailyMotion – How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/dailymotion-how-to-get-him-back/)
 - [How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/how-to-get-him-back/)
 - [YouTube – How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/youtube-how-to-get-him-back/)
-- [How To Get Him Back](https://www.youtube.com/watch?v=64Hz-hdA1cs)
+- [DailyMotion – How Long Should No Contact Last](https://exbackluv.wordpress.com/2021/06/30/dailymotion-how-long-should-no-contact-last/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
