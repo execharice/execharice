@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does No Contact Rule Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/07/06/does-no-contact-rule-work-if-your-ex-is-seeing-someone-else/)
 - [Does The 60 Day No Contact Rule Work](https://exbackluv.wordpress.com/2021/07/03/does-the-60-day-no-contact-rule-work/)
 - [Will No Contact Make Him Move On](https://exbackluv.wordpress.com/2021/07/01/will-no-contact-make-him-move-on/)
 - [DailyMotion – How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/dailymotion-how-to-get-him-back/)
 - [How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/how-to-get-him-back/)
-- [YouTube – How To Get Him Back](https://exbackluv.wordpress.com/2021/07/01/youtube-how-to-get-him-back/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
