@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DailyMotion – Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/dailymotion-should-i-block-my-ex/)
 - [Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/should-i-block-my-ex/)
 - [YouTube – Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/youtube-should-i-block-my-ex/)
 - [Should I Block My Ex](https://www.youtube.com/watch?v=K7OtQxu-98s)
 - [Does No Contact Rule Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/07/06/does-no-contact-rule-work-if-your-ex-is-seeing-someone-else/)
-- [Does The 60 Day No Contact Rule Work](https://exbackluv.wordpress.com/2021/07/03/does-the-60-day-no-contact-rule-work/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
