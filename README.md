@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [YouTube – Does The 60 Day No Contact Rule Work](https://exbackluv.wordpress.com/2021/07/08/youtube-does-the-60-day-no-contact-rule-work/)
 - [Does The 60 Day No Contact Rule Work](https://www.youtube.com/watch?v=FOQGK2VOJ08)
 - [DailyMotion – Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/dailymotion-should-i-block-my-ex/)
 - [Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/should-i-block-my-ex/)
 - [YouTube – Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/youtube-should-i-block-my-ex/)
-- [Should I Block My Ex](https://www.youtube.com/watch?v=K7OtQxu-98s)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
