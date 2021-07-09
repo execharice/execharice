@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does The No Contact Rule Work If You Were Dumped By Ex](https://exbackluv.wordpress.com/2021/07/09/does-the-no-contact-rule-work-if-you-were-dumped-by-ex-2/)
 - [DailyMotion – Does The 60 Day No Contact Rule Work](https://exbackluv.wordpress.com/2021/07/08/dailymotion-does-the-60-day-no-contact-rule-work/)
 - [YouTube – Does The 60 Day No Contact Rule Work](https://exbackluv.wordpress.com/2021/07/08/youtube-does-the-60-day-no-contact-rule-work/)
 - [Does The 60 Day No Contact Rule Work](https://www.youtube.com/watch?v=FOQGK2VOJ08)
 - [DailyMotion – Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/dailymotion-should-i-block-my-ex/)
-- [Should I Block My Ex](https://exbackluv.wordpress.com/2021/07/07/should-i-block-my-ex/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
