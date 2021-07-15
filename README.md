@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Power of Silence After A Breakup](https://exbackluv.wordpress.com/2021/07/15/the-power-of-silence-after-a-breakup/)
 - [How To Get Him Back Now](https://exbackluv.wordpress.com/2021/07/15/how-to-get-him-back-now/)
 - [Is My Ex Thinking About Me During No Contact Period](https://exbackluv.wordpress.com/2021/07/14/is-my-ex-thinking-about-me-during-no-contact-period/)
 - [DailyMotion – How Can You Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/13/dailymotion-how-can-you-make-your-ex-miss-you/)
 - [How Can You Make Your Ex Miss You?](https://exbackluv.wordpress.com/2021/07/13/how-can-you-make-your-ex-miss-you/)
-- [YouTube – How Can You Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/13/youtube-how-can-you-make-your-ex-miss-you/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
