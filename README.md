@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Do You Give Him Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/21/how-do-you-give-him-space-and-make-him-miss-you/)
 - [VIDEO 2 – How Do You Give Him Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/21/video-2-how-do-you-give-him-space-and-make-him-miss-you/)
 - [VIDEO – How Do You Give Him Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/21/video-how-do-you-give-him-space-and-make-him-miss-you/)
 - [How Do You Give Him Space And Make Him Miss You](https://www.youtube.com/watch?v=wVsxmazrWmw)
 - [The Male Mind During No Contact Period](https://exbackluv.wordpress.com/2021/07/17/the-male-mind-during-no-contact-period/)
-- [The Power of Silence After A Breakup](https://exbackluv.wordpress.com/2021/07/15/the-power-of-silence-after-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
