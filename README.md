@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Do You Give Your Ex Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/23/how-do-you-give-your-ex-space-and-make-him-miss-you/)
 - [Will No Contact Make A Guy Move On](https://exbackluv.wordpress.com/2021/07/22/will-no-contact-make-a-guy-move-on/)
 - [VIDEO 2 – Will No Contact Make Him Move On](https://exbackluv.wordpress.com/2021/07/22/video-2-will-no-contact-make-him-move-on/)
 - [VIDEO – Will No Contact Make Him Move On](https://exbackluv.wordpress.com/2021/07/22/video-will-no-contact-make-him-move-on/)
 - [How Do You Give Him Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/21/how-do-you-give-him-space-and-make-him-miss-you/)
-- [VIDEO 2 – How Do You Give Him Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/21/video-2-how-do-you-give-him-space-and-make-him-miss-you/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
