@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does 60 Day No Contact Work](https://exbackluv.wordpress.com/2021/07/25/does-60-day-no-contact-work/)
 - [How Do You Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/24/how-do-you-make-your-ex-miss-you/)
 - [Should I block my ex-boyfriend](https://exbackluv.wordpress.com/2021/07/23/should-i-block-my-ex-boyfriend/)
 - [How Do You Give Your Ex Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/07/23/how-do-you-give-your-ex-space-and-make-him-miss-you/)
 - [Will No Contact Make A Guy Move On](https://exbackluv.wordpress.com/2021/07/22/will-no-contact-make-a-guy-move-on/)
-- [VIDEO 2 – Will No Contact Make Him Move On](https://exbackluv.wordpress.com/2021/07/22/video-2-will-no-contact-make-him-move-on/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
