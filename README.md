@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Make Your Ex Miss You Badly](https://exbackluv.wordpress.com/2021/07/30/how-to-make-your-ex-miss-you-badly/)
 - [Does The No Contact Rule Work If He’s Already Seeing Someone](https://exbackluv.wordpress.com/2021/07/29/does-the-no-contact-rule-work-if-hes-already-seeing-someone/)
 - [Video 2 – How To Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/28/video2-how-to-make-your-ex-miss-you/)
 - [Video – How To Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/28/video-how-to-make-your-ex-miss-you/)
 - [How To Make Your Ex Miss You](https://exbackluv.wordpress.com/2021/07/27/how-to-make-your-ex-miss-you-2/)
-- [How To Make Your Ex Miss You](https://www.youtube.com/watch?v=1sMUZAE1Fy0)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
