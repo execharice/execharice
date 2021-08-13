@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Get Him Back Fast](https://exbackluv.wordpress.com/2021/08/13/how-to-get-him-back-fast/)
 - [How Long Should I Wait To Talk To My Ex After A Breakup](https://exbackluv.wordpress.com/2021/08/13/how-long-should-i-wait-to-talk-to-my-ex-after-a-breakup/)
 - [Make Him Miss You](https://exbackluv.wordpress.com/2021/08/12/make-him-miss-you/)
 - [Video 2 – Make Him Miss You](https://exbackluv.wordpress.com/2021/08/12/video-2-make-him-miss-you/)
 - [Video – Make Him Miss You](https://exbackluv.wordpress.com/2021/08/12/video-make-him-miss-you/)
-- [Video 2 – How Can I Make Him Miss Me Badly](https://exbackluv.wordpress.com/2021/08/11/video-2-how-can-i-make-him-miss-me-badly/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
