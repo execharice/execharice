@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Get Your Ex Boyfriend Back](https://www.youtube.com/watch?v=5mUObr5yO_M)
 - [The Power of Silence After Breakup](https://exbackluv.wordpress.com/2021/08/15/the-power-of-silence-after-breakup/)
 - [Is My Ex Thinking About Me During No Contact Period](https://exbackluv.wordpress.com/2021/08/14/is-my-ex-thinking-about-me-during-no-contact-period-2/)
 - [How To Get Him Back Fast](https://exbackluv.wordpress.com/2021/08/13/how-to-get-him-back-fast/)
 - [How Long Should I Wait To Talk To My Ex After A Breakup](https://exbackluv.wordpress.com/2021/08/13/how-long-should-i-wait-to-talk-to-my-ex-after-a-breakup/)
-- [Make Him Miss You](https://exbackluv.wordpress.com/2021/08/12/make-him-miss-you/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
