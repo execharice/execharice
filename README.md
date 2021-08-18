@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Video 2 – How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/08/18/video-2-how-can-i-get-my-ex-boyfriend-back-fast/)
+- [Video – How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/08/18/video-how-can-i-get-my-ex-boyfriend-back-fast/)
+- [How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/08/18/how-can-i-get-my-ex-boyfriend-back-fast-2/)
+- [How Can I Get My Ex Boyfriend Back Fast](https://www.youtube.com/watch?v=Doit6wDJHpY)
 - [Video 2 – How To Get Your Ex Boyfriend Back](https://exbackluv.wordpress.com/2021/08/18/video-2-how-to-get-your-ex-boyfriend-back/)
-- [Video – How To Get Your Ex Boyfriend Back](https://exbackluv.wordpress.com/2021/08/18/video-how-to-get-your-ex-boyfriend-back/)
-- [How To Get Your Ex Boyfriend Back](https://exbackluv.wordpress.com/2021/08/18/how-to-get-your-ex-boyfriend-back-2/)
-- [How To Get Your Ex Boyfriend Back](https://www.youtube.com/watch?v=5mUObr5yO_M)
-- [The Power of Silence After Breakup](https://exbackluv.wordpress.com/2021/08/15/the-power-of-silence-after-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
