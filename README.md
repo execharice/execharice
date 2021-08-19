@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [VIDEO 2 – Do Guys Miss You After A Breakup](https://exbackluv.wordpress.com/2021/08/19/video-2-do-guys-miss-you-after-a-breakup/)
+- [VIDEO – Do Guys Miss You After A Breakup](https://exbackluv.wordpress.com/2021/08/19/video-do-guys-miss-you-after-a-breakup/)
+- [Does Dreaming About An Ex Mean They Miss You](https://www.youtube.com/watch?v=_mp1viqOjto)
+- [Do Guys Miss You After A Breakup](https://www.youtube.com/watch?v=ugwy5vbCc3o)
 - [Video 2 – Do Exes Miss You](https://exbackluv.wordpress.com/2021/08/18/video-2-do-exes-miss-you/)
-- [Video – Do Exes Miss You](https://exbackluv.wordpress.com/2021/08/18/video-do-exes-miss-you/)
-- [Do Exes Miss You](https://exbackluv.wordpress.com/2021/08/18/do-exes-miss-you/)
-- [Video 2 – How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/08/18/video-2-how-can-i-get-my-ex-boyfriend-back-fast/)
-- [Video – How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/08/18/video-how-can-i-get-my-ex-boyfriend-back-fast/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
