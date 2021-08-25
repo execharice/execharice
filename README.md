@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [No Contact Rule](https://exbackluv.wordpress.com/2021/08/25/no-contact-rule/)
 - [VIDEO 2 – Does Dreaming About An Ex Mean They Miss You](https://exbackluv.wordpress.com/2021/08/21/video-2-does-dreaming-about-an-ex-mean-they-miss-you/)
 - [VIDEO – Does Dreaming About An Ex Mean They Miss You](https://exbackluv.wordpress.com/2021/08/21/video-does-dreaming-about-an-ex-mean-they-miss-you/)
 - [Does Dreaming About An Ex Mean They Miss You](https://exbackluv.wordpress.com/2021/08/20/does-dreaming-about-an-ex-mean-they-miss-you/)
 - [Do Guys Miss You After A Breakup](https://exbackluv.wordpress.com/2021/08/19/do-guys-miss-you-after-a-breakup/)
-- [VIDEO 2 – Do Guys Miss You After A Breakup](https://exbackluv.wordpress.com/2021/08/19/video-2-do-guys-miss-you-after-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
