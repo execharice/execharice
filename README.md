@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Is My Ex Thinking About Me During No Contact Period](https://exbackluv.wordpress.com/2021/08/28/is-my-ex-thinking-about-me-during-no-contact-period-3/)
 - [How Long Will It Take For An Ex To Miss You With No Contact](https://exbackluv.wordpress.com/2021/08/27/how-long-will-it-take-for-an-ex-to-miss-you-with-no-contact-3/)
 - [How Long Should You Wait To Talk To Your Ex After Breakup](https://exbackluv.wordpress.com/2021/08/26/how-long-should-you-wait-to-talk-to-your-ex-after-breakup/)
 - [VIDEO 2 –  No Contact Rule](https://exbackluv.wordpress.com/2021/08/25/video-2-no-contact-rule/)
 - [VIDEO –  No Contact Rule](https://exbackluv.wordpress.com/2021/08/25/video-no-contact-rule/)
-- [No Contact Rule](https://exbackluv.wordpress.com/2021/08/25/no-contact-rule/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
