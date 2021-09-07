@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Do Guys Miss You After Breakup](https://exbackluv.wordpress.com/2021/09/07/do-guys-miss-you-after-breakup/)
 - [No Contact Rule](https://www.youtube.com/watch?v=C_F_oLv1xh4)
 - [How To Get Him Back Now](https://exbackluv.wordpress.com/2021/09/03/how-to-get-him-back-now-2/)
 - [How Do I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/09/02/how-do-i-get-my-ex-boyfriend-back-fast/)
 - [How To Win Your Ex Boyfriend Back](https://exbackluv.wordpress.com/2021/09/01/how-to-win-your-ex-boyfriend-back/)
-- [Is My Ex Thinking About Me During No Contact Period](https://exbackluv.wordpress.com/2021/08/28/is-my-ex-thinking-about-me-during-no-contact-period-3/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
