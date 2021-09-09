@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [VIDEO – Dealing With A Breakup](https://exbackluv.wordpress.com/2021/09/09/video-dealing-with-a-breakup/)
 - [Dealing With A Breakup](https://www.youtube.com/watch?v=GMK0AKbPJmg)
 - [VIDEO 2 – How To Get Over A Breakup](https://exbackluv.wordpress.com/2021/09/09/video2-how-to-get-over-a-breakup/)
 - [VIDEO – How To Get Over A Breakup](https://exbackluv.wordpress.com/2021/09/09/video-how-to-get-over-a-breakup/)
 - [How To Get Over A Breakup](https://exbackluv.wordpress.com/2021/09/09/how-to-get-over-a-breakup/)
-- [How To Get Over A Breakup](https://www.youtube.com/watch?v=2GIIDI9GojM)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
