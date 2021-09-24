@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Is My Ex Thinking About Me In No Contact](https://exbackluv.wordpress.com/2021/09/24/is-my-ex-thinking-about-me-in-no-contact/)
 - [VIDEO – How To Move On After A Breakup](https://exbackluv.wordpress.com/2021/09/11/video-how-to-move-on-after-a-breakup/)
 - [How To Move On After A Breakup](https://exbackluv.wordpress.com/2021/09/11/how-to-move-on-after-a-breakup/)
 - [Dealing With A Breakup](https://exbackluv.wordpress.com/2021/09/10/dealing-with-a-breakup/)
 - [VIDEO – Dealing With A Breakup](https://exbackluv.wordpress.com/2021/09/09/video-dealing-with-a-breakup/)
-- [VIDEO 2 – How To Get Over A Breakup](https://exbackluv.wordpress.com/2021/09/09/video2-how-to-get-over-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
