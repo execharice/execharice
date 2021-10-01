@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Does No Contact Work If My Ex Is Seeing Someone](https://exbackluv.wordpress.com/2021/10/01/does-no-contact-work-if-my-ex-is-seeing-someone/)
 - [The Power Of Silence After A Breakup](https://exbackluv.wordpress.com/2021/09/30/the-power-of-silence-after-a-breakup-2/)
 - [Will A Guy Miss You During No Contact](https://exbackluv.wordpress.com/2021/09/29/will-a-guy-miss-you-during-no-contact/)
 - [Should I Block Or Ignore My Ex](https://exbackluv.wordpress.com/2021/09/25/should-i-block-or-ignore-my-ex/)
 - [Is My Ex Thinking About Me In No Contact](https://exbackluv.wordpress.com/2021/09/24/is-my-ex-thinking-about-me-in-no-contact/)
-- [VIDEO – How To Move On After A Breakup](https://exbackluv.wordpress.com/2021/09/11/video-how-to-move-on-after-a-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
