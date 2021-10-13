@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Text Your Ex](https://www.youtube.com/watch?v=4xwMjtv4K0g)
 - [How To Get Him Back After No Contact](https://exbackluv.wordpress.com/2021/10/09/how-to-get-him-back-after-no-contact/)
 - [How Can You Make Your Ex Boyfriend Want You Back?](https://exbackluv.wordpress.com/2021/10/08/how-can-you-make-your-ex-boyfriend-want-you-back-2/)
 - [What Is The Fastest Way To Get Your Ex Back?](https://exbackluv.wordpress.com/2021/10/07/what-is-the-fastest-way-to-get-your-ex-back/)
 - [Will No Contact Make My Ex Boyfriend Move On](https://exbackluv.wordpress.com/2021/10/03/will-no-contact-make-my-ex-boyfriend-move-on/)
-- [How Long Should No Contact Period Last](https://exbackluv.wordpress.com/2021/10/02/how-long-should-no-contact-period-last-2/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
