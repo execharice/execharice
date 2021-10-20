@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Texts To Make Him Miss You](https://exbackluv.wordpress.com/2021/10/20/texts-to-make-him-miss-you/)
 - [No Contact Rule After Breakup](https://exbackluv.wordpress.com/2021/10/20/no-contact-rule-after-breakup/)
 - [Text Your Ex Back](https://exbackluv.wordpress.com/2021/10/16/text-your-ex-back/)
 - [Should I Text Him First](https://exbackluv.wordpress.com/2021/10/15/should-i-text-him-first/)
 - [Text Your Ex Back](https://www.youtube.com/watch?v=ArfwzqtWWk8)
-- [Should I Text My Ex](https://exbackluv.wordpress.com/2021/10/14/should-i-text-my-ex/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
