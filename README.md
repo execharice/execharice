@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Long Should You Wait To Talk To Your Ex After The Breakup](https://exbackluv.wordpress.com/2021/10/21/how-long-should-you-wait-to-talk-to-your-ex-after-the-breakup/)
 - [No Contact Rule Breakup](https://exbackluv.wordpress.com/2021/10/20/no-contact-rule-breakup/)
 - [Texts To Make Him Miss You](https://exbackluv.wordpress.com/2021/10/20/texts-to-make-him-miss-you/)
 - [No Contact Rule After Breakup](https://exbackluv.wordpress.com/2021/10/20/no-contact-rule-after-breakup/)
 - [Text Your Ex Back](https://exbackluv.wordpress.com/2021/10/16/text-your-ex-back/)
-- [Should I Text Him First](https://exbackluv.wordpress.com/2021/10/15/should-i-text-him-first/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
