@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Long Does It Take For An Ex Boyfriend To Miss You With No Contact](https://exbackluv.wordpress.com/2021/10/22/how-long-does-it-take-for-an-ex-boyfriend-to-miss-you-with-no-contact/)
 - [How Long Do You Wait To Talk To Your Ex After A Breakup](https://exbackluv.wordpress.com/2021/10/21/how-long-do-you-wait-to-talk-to-your-ex-after-a-breakup-2/)
 - [How Long Should You Wait To Talk To Your Ex After The Breakup](https://exbackluv.wordpress.com/2021/10/21/how-long-should-you-wait-to-talk-to-your-ex-after-the-breakup/)
 - [No Contact Rule Breakup](https://exbackluv.wordpress.com/2021/10/20/no-contact-rule-breakup/)
 - [Texts To Make Him Miss You](https://exbackluv.wordpress.com/2021/10/20/texts-to-make-him-miss-you/)
-- [No Contact Rule After Breakup](https://exbackluv.wordpress.com/2021/10/20/no-contact-rule-after-breakup/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
