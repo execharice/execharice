@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Get Him Back After No Contac](https://exbackluv.wordpress.com/2021/11/02/how-to-get-him-back-after-no-contac/)
 - [How Long Should No Contact Rule Last](https://exbackluv.wordpress.com/2021/10/29/how-long-should-no-contact-rule-last/)
 - [Does No Contact Work If Your Ex Is Seeing Someone Else](https://exbackluv.wordpress.com/2021/10/28/does-no-contact-work-if-your-ex-is-seeing-someone-else-2/)
 - [Power of Silence After Breakup](https://exbackluv.wordpress.com/2021/10/26/power-of-silence-after-breakup/)
 - [Is It Better To Block Or Ignore An Ex?](https://exbackluv.wordpress.com/2021/10/25/is-it-better-to-block-or-ignore-an-ex/)
-- [How Long Does It Take For An Ex Boyfriend To Miss You With No Contact](https://exbackluv.wordpress.com/2021/10/22/how-long-does-it-take-for-an-ex-boyfriend-to-miss-you-with-no-contact/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
