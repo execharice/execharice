@@ -32,11 +32,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [No Contact Rule After Breakup](https://exbackluv.wordpress.com/2021/11/11/no-contact-rule-after-breakup-2/)
 - [No Contact Rule After Breakup.pdf](https://exbackluv.wordpress.com/2021/11/11/no-contact-rule-after-breakup-pdf/)
 - [How Do You Give Ex Space And Make Him Miss You](https://exbackluv.wordpress.com/2021/11/09/how-do-you-give-ex-space-and-make-him-miss-you/)
 - [How To Get Him Back For Good](https://exbackluv.wordpress.com/2021/11/08/how-to-get-him-back-for-good/)
 - [How Can I Get My Ex Boyfriend Back Fast](https://exbackluv.wordpress.com/2021/11/06/how-can-i-get-my-ex-boyfriend-back-fast-3/)
-- [How To Get Your Ex Boyfriend Back For Good](https://exbackluv.wordpress.com/2021/11/05/how-to-get-your-ex-boyfriend-back-for-good/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](about.me/exbackluv)
